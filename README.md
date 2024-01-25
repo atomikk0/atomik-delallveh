@@ -1,4 +1,5 @@
 Discord: atomikk0
+
 Discord Sunucum: https://discord.gg/GSeQ747HsC
 
 ![image]( https://cdn.discordapp.com/attachments/1119221551657648168/1200012151134363688/image.png?ex=65c4a167&is=65b22c67&hm=227de79207e4f1230fab73a97d1044fff9bda247c5a2999a5ac1a6db79e467c9& ) 
